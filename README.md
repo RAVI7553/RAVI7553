@@ -2,7 +2,7 @@
 - 👀 I’m interested in WEB DEVELOPMENT
 - 🌱 I’m currently learning JAVASCRIPT,FRAMEWOKS LIKE BOOTSTRAP etc... AND FULL STACK WEB DEVELOPMENT
 - 💞️ I’m looking to collaborate on DEVELOPING A NEW WEB PAGES 
-- 📫 How to reach me raviy7151@gmail.com
+- 📫 How to reach me raviy7151@gmail.com, whatsapp: 9559027553
 - 😄 Pronouns:
 - ⚡ Fun fact: ...
 
